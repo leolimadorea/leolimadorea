@@ -60,7 +60,7 @@ When I’m not coding, I explore new technologies, contribute to open-source pro
 
 ## 📫 Connect With Me
 
-* 💼 [LinkedIn](https://www.linkedin.com/in/leolimadorea)
+* 💼 [LinkedIn]([https://www.linkedin.com/in/leolimadorea](https://www.linkedin.com/in/leonardo-d%C3%B3rea-a33113315/))
 
 ---
 
